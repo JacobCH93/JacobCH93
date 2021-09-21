@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JacobCH93
 - 👀 I’m interested in ...coding of all types
-- 🌱 I’m currently studying at makers with a scholarship
+- 🌱 I’m currently studying at Makers Acadamy
 - 💞️ I’m looking to collaborate on ... anything for experience
 - 📫 How to reach me ...email me or message me on here 
 
